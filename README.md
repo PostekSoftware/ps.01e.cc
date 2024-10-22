@@ -1,1 +1,0 @@
-# Postek Software
